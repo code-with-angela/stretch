@@ -1,1 +1,1 @@
-# stretch
+# Stretch - reach higher, connect deeper!
